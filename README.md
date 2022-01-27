@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xxxnimnulxxx
 - 👀 I’m interested in BTC
-- 🌱 I’m currently learning moving
+- 🌱 I’m currently learning PC
 - 💞️ I’m looking to collaborate on internet
 - 📫 How to reach me nimnul82@bk.ru
 
